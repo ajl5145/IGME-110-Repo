@@ -6,3 +6,9 @@
 
 Smallmouth Bass are soooo COOOOOOOOOL
 Look! There's one! ![fish](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d0/Smallmouth_bass.png/800px-Smallmouth_bass.png)
+
+---
+
+Wouldn't it be so cool to hold one in your hands?
+## GUESS WHAT??? I HAVE!!!!!
+I don't have any pictures though- well, I do, but you're not ready to see that yet. You're not... *prepared...*
