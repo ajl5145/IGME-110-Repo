@@ -15,3 +15,8 @@ Wouldn't it be so cool to hold one in your hands?
 I don't have any pictures though- well, I do, but you're not ready to see that yet. You're not... *prepared...*
 
 For the raw... unparalleled power... of the smallmouth bass. 
+
+Did you know I've caught a *six pound* smallmouth bass before?
+# That's a big smallmouth bass. 
+
+Trust me. 30 years ago that would be a world record.
