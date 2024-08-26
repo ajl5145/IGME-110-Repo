@@ -21,6 +21,8 @@ Did you know I've caught a *six pound* smallmouth bass before?
 
 Trust me. 30 years ago that would be a world record.
 
+---
+
 [Here's another resource for learning about smallmouth bass.](https://nas.er.usgs.gov/queries/FactSheet.aspx?SpeciesID=396)
 
 It's from a .gov website so you know it's trustworthy.
