@@ -2,7 +2,7 @@
 ---
 # THE FISHTICLE
 ---
-## They're all [smallmouth bass](https://www.google.com/url?sa=i&url=https%3A%2F%2Fen.wikipedia.org%2Fwiki%2FSmallmouth_bass&psig=AOvVaw22bEE8LiFRNwDNi5DGWpfE&ust=1724801800636000&source=images&cd=vfe&opi=89978449&ved=0CBcQjhxqFwoTCPDWlsfpk4gDFQAAAAAdAAAAABAE)
+## They're all [smallmouth bass.](https://www.google.com/url?sa=i&url=https%3A%2F%2Fen.wikipedia.org%2Fwiki%2FSmallmouth_bass&psig=AOvVaw22bEE8LiFRNwDNi5DGWpfE&ust=1724801800636000&source=images&cd=vfe&opi=89978449&ved=0CBcQjhxqFwoTCPDWlsfpk4gDFQAAAAAdAAAAABAE)
 
 Smallmouth Bass are soooo COOOOOOOOOL
 
@@ -20,3 +20,6 @@ Did you know I've caught a *six pound* smallmouth bass before?
 # That's a big smallmouth bass. 
 
 Trust me. 30 years ago that would be a world record.
+
+[Here's another resource for learning about smallmouth bass.](https://nas.er.usgs.gov/queries/FactSheet.aspx?SpeciesID=396)
+It's from a .gov website so you know it's true.
