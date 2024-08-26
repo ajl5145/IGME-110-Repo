@@ -28,3 +28,5 @@ Trust me. 30 years ago that would be a world record.
 It's from a .gov website so you know it's trustworthy.
 
 [This one talks about how we're in the GOLDEN AGE of Smallmouth Bass. THE GOLDEN AGE!!!](https://igfa.org/2020/06/26/the-golden-age-of-smallmouth-bass/)
+
+[This guy made friends with a smallmouth bass! Therefore, bass are friends- not food!](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.montanaoutdoor.com%2F%3Fs%3Dsmallmouth%2Bbass&psig=AOvVaw22bEE8LiFRNwDNi5DGWpfE&ust=1724801800636000&source=images&cd=vfe&opi=89978449&ved=0CBcQjhxqFwoTCPDWlsfpk4gDFQAAAAAdAAAAABAI)
