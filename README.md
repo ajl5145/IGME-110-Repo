@@ -1,7 +1,7 @@
 #  My 110 Repo!!!
 ---
 ## Links!
--https://rit.edu
+-[RIT](https://rit.edu)
 
 - tall
 - medium
