@@ -32,3 +32,5 @@ It's from a .gov website so you know it's trustworthy.
 [This guy made friends with a smallmouth bass! Therefore, bass are friends- not food!](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.montanaoutdoor.com%2F%3Fs%3Dsmallmouth%2Bbass&psig=AOvVaw22bEE8LiFRNwDNi5DGWpfE&ust=1724801800636000&source=images&cd=vfe&opi=89978449&ved=0CBcQjhxqFwoTCPDWlsfpk4gDFQAAAAAdAAAAABAI)
 
 [Smol](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.reddit.com%2Fr%2FFishing%2Fcomments%2F13vbun1%2Fsmallmouth_bass%2F&psig=AOvVaw22bEE8LiFRNwDNi5DGWpfE&ust=1724801800636000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCPDWlsfpk4gDFQAAAAAdAAAAABAS)
+
+![Chicken](ajlundq_MD/cassie.jpg)
